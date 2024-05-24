@@ -43,4 +43,4 @@ If you have any questions or concerns about this privacy policy, please contact 
 
 We may update this privacy policy from time to time. We will notify you of any changes by posting the new privacy policy on this page.
 
-Last updated: [Date]
+Last updated: 2024 - 05 - 24
